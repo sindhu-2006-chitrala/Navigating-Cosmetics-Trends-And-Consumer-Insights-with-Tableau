@@ -1,0 +1,1 @@
+# Navigating-Cosmetics-Trends-And-Consumer-Insights-with-Tableau
